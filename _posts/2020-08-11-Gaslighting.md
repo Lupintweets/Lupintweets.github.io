@@ -50,6 +50,7 @@ Propaganda wie in der NS-Zeit oder in Nordkorea sind Beispiele dafür, welche Di
 Auch in Kulten sieht man oft diverse Techniken, die auf Gaslighting hindeuten. Um die Anhänger gefügig zu machen, müssen sie ihre eigentliche Welt anzweifeln und die des Kults annehmen. Dass diese Welt auch ganz absurd und für andere nicht nachvollziehbar sein kann, zeigen uns Beispiele wie Scientology.  
 
 ![Einige typische Aussagen eines Gaslighters. Illustration von Maureen Marzi Wilson.](/images/gaslighters.jpg)
+
 *Einige typische Aussagen eines Gaslighters. Illustration von [Maureen Marzi Wilson.*](https://www.instagram.com/introvertdoodles/)
 
 **Wie erkennt man einen Gaslighter? Was sind die Warnzeichen?**
